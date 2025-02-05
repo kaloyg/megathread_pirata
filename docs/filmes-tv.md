@@ -78,6 +78,10 @@ Filmes e TV são obras de arte visual que empregam imagens em movimento para imi
 - Atendendo a todos os gostos, a variedade de filmes inclui desde clássicos até sucessos de bilheteria.
 - [Resultados de segurança da URL](https://www.urlvoid.com/scan/novafork.com/)
 
+### 🌟 [Watch2Day](https://watch2day.site/)
+-If you love Movies and TVShows but hate subscriptions, Watch2Day lets you stream movies and shows completely free – no sign-ups, no credit card required
+-[Resultados de segurança da URL](https://www.urlvoid.com/scan/watch2day.site/)
+
 ### ▶️ [HDToday](https://hdtoday.tv/)
 - Plataforma com diversas séries e filmes legendados adicionados constantemente.
 - [Resultados de segurança da URL](https://www.urlvoid.com/scan/hdtoday.tv/)
